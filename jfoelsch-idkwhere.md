@@ -21,6 +21,7 @@ I don't really have a hometown, but below are the two places I lived longest bef
 
 ### Local Highlights
  - People like Pagliai's, but they're wrong
+ - Hamburg Inn No. 2 is worth visiting for the quadrennial bean vote (featured on the West Wing that once) and for the pie milkshakes
  - Java Hut is an excellent cafe
  - The Old Capitol downtown is worth a walkthrough
  - Mondo's is a delightful restaurant
