@@ -18,3 +18,4 @@
 ##### It's a disgusting club.
 #### 2. Columbus, Ohio
 ##### "South til you smell it, East til you step in it!"
+#### 3. Don't leave your house if it's less than 0 degrees F
