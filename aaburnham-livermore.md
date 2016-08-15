@@ -8,3 +8,4 @@
 ### Things to do
 
 -Wine tasting
+-Rodeo
