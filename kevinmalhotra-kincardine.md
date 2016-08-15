@@ -10,4 +10,4 @@ KiteSurf
 Dine at many fine places, including Harbour Street Brasserie and Tremonto's.
 
 ### Things to Avoid
-Undertow in the harbour
+Don't swim between the harbour piers.  There is a monster undertow.
