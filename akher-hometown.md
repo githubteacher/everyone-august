@@ -3,5 +3,4 @@
 ### Nice place to live
 
 ### Good places to Eat
-
 ### Convinient commute to Work locations.
