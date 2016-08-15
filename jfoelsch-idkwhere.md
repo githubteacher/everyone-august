@@ -30,3 +30,5 @@ I don't really have a hometown, but below are the two places I lived longest bef
  - There are a lot of festivals going on.  I particularly like the jazz festival that lasts for several weeks over the summer.
 ### Adjacent Places
  - There is nothing worth visiting within an hour.  Maybe Cedar Rapids, but its highlights are a steakhouse and an IMAX.
+ - Des Moines has a mall and Adventureland, which are nice, and the Quad Cities have some nice Mississippi-front views
+ - Chicago's a four-hour drive away?
