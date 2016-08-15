@@ -1,4 +1,6 @@
 ## Quezon City, Philippines
- +- It's pronounced as Ke-son
+- It's pronounced as Ke-son
 ### Awesome places to eat!!
- +- Mister kebab
+- Mister kebab
+- Jollibee - The best fastfood restaurant in the world!
+- mcdonalds

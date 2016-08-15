@@ -7,4 +7,9 @@
 
 ### Fun Things to Do
 
+- Walk around the University of Virginia, the only university that's also listed as a UNESCO World Heritage site.
+- Stroll the Downtown Mall, the historic Main Street. It has been closed off to traffic and is a lovely pedestrian zone with shops and restaurants.
+
 ### Places to Avoid
+
+- Unless you like hanging out with undergrads with fake IDs, avoid the bars on the Corner near UVA.

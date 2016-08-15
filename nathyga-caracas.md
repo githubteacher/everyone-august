@@ -4,7 +4,7 @@ Caracas is located along the Guaire River in the northern part of the country, f
      * Cerro el Avila
      * Altamira
      * El Hatillo
-     * 
+     * Parque del Este
 
 ### Fun Things to do
 
