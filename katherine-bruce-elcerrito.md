@@ -10,6 +10,7 @@
 
 - The El Cerrito farmers market is a great way to spend a Saturday!
 - There are many walking and hiking trails, both flat and paved and more rugged hilly terrain.
+- The Contra Costa Civic Theater is a wonderful community playhouse!
 - If you like more "luxury" cinema experiences a la the Alamo Drafthouse, catch a movie at the Cerrito Theater.
 
 ### Places to Avoid
