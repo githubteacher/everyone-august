@@ -14,5 +14,3 @@
 - Stoneridge mall
 
 ### Places to Avoid
-
-- No where especially
