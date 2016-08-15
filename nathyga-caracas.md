@@ -1,6 +1,7 @@
 # Caracas, Venezuela
 
-### Great Places to Eat
+### Places to Visit
+     * Cerro el Avila
 
 ### Fun Things to do
 
