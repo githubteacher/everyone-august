@@ -10,3 +10,4 @@
 -Eating
 
 ### Places to Avoid
+-none
