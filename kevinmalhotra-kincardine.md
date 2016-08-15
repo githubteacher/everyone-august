@@ -1,4 +1,4 @@
 ## Kincardine, ON
-### Erie Belle Restaurant
-### KiteSurf
-### Lake Undertow
+### Places to Visit
+### Things to Do
+### Things to Avoid
