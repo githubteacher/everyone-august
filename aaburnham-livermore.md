@@ -6,3 +6,5 @@
 -Bruno's is good Italian food.
 
 ### Things to do
+
+-Wine tasting
