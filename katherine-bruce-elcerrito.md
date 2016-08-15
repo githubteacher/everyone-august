@@ -14,3 +14,5 @@
 - If you like more "luxury" cinema experiences a la the Alamo Drafthouse, catch a movie at the Cerrito Theater.
 
 ### Places to Avoid
+
+- Be careful on the more isolated trails after dark, especially if you're alone. El Cerrito is a pretty safe town, but there have been muggings reported up there in the last few years.
