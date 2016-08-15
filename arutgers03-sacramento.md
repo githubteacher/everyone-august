@@ -12,3 +12,5 @@ Cobblestones: stubbed toe
 
   * The *American River Bike Trail* stretches 30 miles from Old Sacramento to Folsom
   * In the summertime everyone spends time at on the rivers. Rafting is quite popular on the American River. It's possible to go for dozens of miles with a variety of classes of rapids.
+  *
+  
