@@ -8,4 +8,7 @@
 
 ### Fun things to do
 
+- If you like hiking, check out Raven Rock
+- If you are an indoor person, go to Raleigh and check out the Science Museum
+
 ### Places to Avoid
