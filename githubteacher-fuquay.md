@@ -12,5 +12,3 @@
 - If you are an indoor person, go to Raleigh and check out the Science Museum
 
 ### Places to Avoid
-
-- Avoid the American Tobacco Trail if you are hiking alone!
