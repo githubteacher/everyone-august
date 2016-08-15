@@ -6,5 +6,6 @@
 - Sunrise Pizza
 
 ### Fun things to do
+- Go and see a championship basketball team - The Cleveland Cavaliers
 
 ### Places to avoid
