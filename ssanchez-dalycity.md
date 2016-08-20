@@ -5,5 +5,9 @@
 -Westlake Coffee Shop
 
 ### Fun Things to Do
+-Beach
+-Going to the Park
+-Eating
 
 ### Places to Avoid
+-none
